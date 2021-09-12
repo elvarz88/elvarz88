@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @elvarz88
-- 👀 I’m interested in ... oding
+- 👀 I’m interested in ... coding
 - 🌱 I’m currently learning ... about Edrum
 - 💞️ I’m looking to collaborate on ... Edrum
 - 📫 How to reach me ... elvarz2015@gmail.com
